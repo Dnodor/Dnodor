@@ -3,8 +3,11 @@
 ![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExcm56bTNzdGJpNWx4d3JiYjJybDNwbGc5dzVleWJkMmlqYnU0aG1qMiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/MDJ9IbxxvDUQM/giphy.gif)
 
 🎴 : Nick - Dnodor
+
 👁‍🗨 : Pronomes - Dno/dor
+
  ⚧ : Gênero - Se quiser sim.
+
  🀄️ : Profissão - Estudante
 
  ## Projetos
